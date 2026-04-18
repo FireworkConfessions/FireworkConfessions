@@ -42,7 +42,7 @@ Pro-para<br> </details> <p align="center"> <img src="https://github.com/user-att
 </p>
 
 <br>
-<img src="https://github.com/user-attachments/assets/455aa645-79bf-434a-9e58-41d306f309da" align="right" width="40%"> <p align="center"> ${\textsf{\color{#ff7bc2}𝑳𝒐𝒐𝒌 𝒂𝒕 𝒚𝒐𝒖 𝒈𝒐}}$ <br> <img src="https://github.com/user-attachments/assets/69388a61-381c-42aa-b5d7-365c23a34613" width="35%"/>
+<img src="https://github.com/user-attachments/assets/455aa645-79bf-434a-9e58-41d306f309da" align="right" width="39%"> <p align="center"> ${\textsf{\color{#ff7bc2}𝑳𝒐𝒐𝒌 𝒂𝒕 𝒚𝒐𝒖 𝒈𝒐}}$ <br> <img src="https://github.com/user-attachments/assets/69388a61-381c-42aa-b5d7-365c23a34613" width="35%"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#FF7034}Interests}}$ㅤ⊹ ࣪ ˖ </summary> Lego Monkie Kid<br>
 Undertale<br>
