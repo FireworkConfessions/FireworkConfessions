@@ -11,7 +11,7 @@
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#FF7034}About me}}$ ⊹ ࣪ ˖ </summary> Matty/Eridan<br>
 He/They/It<br>
-20<br>
+21<br>
 Trans & Bisexual<br>
 Taken<br> </details> <p align="center"> <img src="https://github.com/user-attachments/assets/69388a61-381c-42aa-b5d7-365c23a34613" width="35%"/> <p align="center"> ${\textsf{\color{#ff7bc2}𝑰 𝒄𝒐𝒖𝒍𝒅 𝒆𝒗𝒆𝒏 𝒍𝒆𝒂𝒓𝒏 𝒉𝒐𝒘 𝒕𝒐 𝒍𝒐𝒗𝒆 𝒍𝒊𝒌𝒆 𝒚𝒐𝒖}}$
 
